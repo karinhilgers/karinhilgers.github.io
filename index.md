@@ -1,6 +1,7 @@
 ---
 layout: page
 description: "Orthomoleculair Natuurvoedings Deskundige"
+header-img: "img/aloe.jpg"
 weight : 1
 ---
 
