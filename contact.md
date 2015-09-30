@@ -2,7 +2,7 @@
 layout: page
 title: "Contact"
 description: "Vragen? Neem contact met mij op!"
-header-img: "img/contact.jpg"
+header-img: "img/aloe.jpg"
 weight : 5
 ---
 
