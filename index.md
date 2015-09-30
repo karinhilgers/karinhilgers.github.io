@@ -34,14 +34,19 @@ Zowel preventief als curatief kan er gewerkt worden aan het verlichten of geneze
 - hart en vaatziekten/ hypertensie
 - kanker
 - reuma
-- diabetes mellites
+- fibromyalgie
+- diabetes mellitus
 - eczeem
 - allergie
+- astma
+- eczeem
 - spijsverteringsproblemen
 - hoofdpijn/migraine
 - vermoeidheid
 - depressies
 - burn-out
 - menstruatieklachten
+- uitblijvende zwangerschapswens
 - autisme
 - ADHD
+- Buikklachten/pijn
