@@ -9,9 +9,17 @@ weight : 5
 Afspraken kunnen telefonisch gemaakt worden of via de mail.
 
 ## Kosten
-De eerste afspraak duurt 1 ½ uur a €50,-\\
-Een vervolg afspraak duurt 1 uur a €35,-\\
-Korte afspraken van een half uur a €20,-
+
+Prijzen per 1 mei 2016
+1ste consult (incl. indirecte tijd):€60,-
+
+Bespreking voedings- suppletie- en bewegingsadvies na 1 week (incl. indirecte tijd) €60,-
+
+Vervolgconsult (max. 45 min. incl. indirecte tijd):€40,-
+Vervolgconsult (max. 30 min. incl indirecte tijd):€25,-
+
+3 maanden begeleiding (anamnese, voedings-, suppletie- en bewegingsadvies, evaluatie na 2,4,8 en 12 weken (totaal 6 consulten):€250,-
+Bijkomende kosten: de kosten van voedingssupplementen
 
 Aangezien ik ervoor gekozen heb om mij voorlopig niet te laten registreren bij een beroepsvereniging, kan ik de prijzen lager houden en op deze manier toegankelijker zijn voor meer clienten.
 
