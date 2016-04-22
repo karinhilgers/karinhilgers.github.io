@@ -14,7 +14,7 @@ Prijzen per 1 mei 2016
 1ste consult (incl. indirecte tijd):€60,-
 
 Bespreking voedings- suppletie- en bewegingsadvies na 1 week (incl. indirecte tijd) €60,-
-
+###
 Vervolgconsult (max. 45 min. incl. indirecte tijd):€40,-\\
 Vervolgconsult (max. 30 min. incl indirecte tijd):€25,-\\
 
