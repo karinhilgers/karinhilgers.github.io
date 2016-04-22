@@ -15,8 +15,8 @@ Prijzen per 1 mei 2016
 
 Bespreking voedings- suppletie- en bewegingsadvies na 1 week (incl. indirecte tijd) €60,-
 
-Vervolgconsult (max. 45 min. incl. indirecte tijd):€40,-
-Vervolgconsult (max. 30 min. incl indirecte tijd):€25,-
+Vervolgconsult (max. 45 min. incl. indirecte tijd):€40,-\\
+Vervolgconsult (max. 30 min. incl indirecte tijd):€25,-\\
 
 3 maanden begeleiding (anamnese, voedings-, suppletie- en bewegingsadvies, evaluatie na 2,4,8 en 12 weken (totaal 6 consulten):€250,-
 Bijkomende kosten: de kosten van voedingssupplementen
