@@ -28,7 +28,7 @@ Bijkomende kosten: de kosten van voedingssupplementen
 
 Bij verhindering graag de afspraak minimaal 24 uur van te voren afzeggen, anders wordt gereserveerde tijd in rekening gebracht.
 
-### Bon Salu
+#### Bon Salu
 Orthomoleculair Natuurvoedings Praktijk\\
 Karin Hilgers- Kerdijk\\
 Wouter Smitstraat 16\\
