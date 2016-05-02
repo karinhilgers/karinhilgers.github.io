@@ -24,11 +24,11 @@ NB: bij betaling in één keer geldt een korting en betaal je €250,-
 
 Bijkomende kosten: de kosten van voedingssupplementen
 
-###Uitsluitend contante betaling
+##Uitsluitend contante betaling
 
 Bij verhindering graag de afspraak minimaal 24 uur van te voren afzeggen, anders wordt gereserveerde tijd in rekening gebracht.
 
-#### Bon Salu
+### Bon Salu
 Orthomoleculair Natuurvoedings Praktijk\\
 Karin Hilgers- Kerdijk\\
 Wouter Smitstraat 16\\
