@@ -10,8 +10,6 @@ Afspraken kunnen telefonisch gemaakt worden of via de mail.
 
 ## Kosten
 
-Prijzen per 1 mei 2016
-
 1e consult (incl. indirecte tijd):€60,-
 
 Bespreking voedings- suppletie- en bewegingsadvies na 1 week (incl. indirecte tijd) €60,-
