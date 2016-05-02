@@ -28,6 +28,8 @@ Bijkomende kosten: de kosten van voedingssupplementen
 
 Aangezien ik ervoor gekozen heb om mij voorlopig niet te laten registreren bij een beroepsvereniging, kan ik de prijzen lager houden en op deze manier toegankelijker zijn voor meer clienten.
 
+Bij verhindering graag de afspraak minimaal 24 uur van te voren afzeggen, anders wordt gereserveerde tijd in rekening gebracht.
+
 ### Bon Salu
 Orthomoleculair Natuurvoedings Praktijk\\
 Karin Hilgers- Kerdijk\\
