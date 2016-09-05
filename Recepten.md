@@ -15,6 +15,8 @@ weight : 5
 -	snufje zout (himalaya/keltisch zeezout)
 -	rasp van 1 citroen(bij voorkeur bio)
 -	250 gram blauwe bessen
+
+
 - Oven voorverwarmen op 170 graden.
 -	Eieren in de blender (paar minuten aanzetten).
 -	Gesmolten kokosolie erbij.
