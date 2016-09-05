@@ -63,14 +63,18 @@ Topping
 
 
 Stap voor stap
+
 Bodem
+
 -	Ontpit de dadels.
 -	Doe alle ingrediënten voor de bodem in de keukenmachine. Zodra het één grote plakkerige massa is, is het klaar.
 -	In een appeltaartvorm doe je bakpapier.
 -	Verdeel de plakkerige massa in de appeltaartvorm.
 
 Stap voor stap
+
 Vulling
+
 -	Doe de cashewnoten in de keukenmachine.
 -	Was de aardbeien.
 -	Voeg de aardbeien, het citroensap, de honing en het vanillepoeder toe en laat de keukenmachine draaien tot het één grote egale massa is.
@@ -82,7 +86,9 @@ Vulling
 -	Zet de taart voor een paar uur weg in de koelkast
 
 Stap voor stap
+
 Topping
+
 -	Was de aardbeien en laat de kroontjes erop zitten.
 -	Smelt de chocolade au bain-marie.
 -	Verdeel de aardbeien over de taart.
