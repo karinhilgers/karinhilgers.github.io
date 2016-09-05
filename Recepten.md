@@ -57,30 +57,30 @@ Topping
 
 Bodem
 
-	Ontpit de dadels.
-	Doe alle ingrediënten voor de bodem in de keukenmachine. Zodra het één grote plakkerige massa is, is het klaar.
-	In een appeltaartvorm doe je bakpapier.
-	Verdeel de plakkerige massa in de appeltaartvorm.
+-	Ontpit de dadels.
+-	Doe alle ingrediënten voor de bodem in de keukenmachine. Zodra het één grote plakkerige massa is, is het klaar.
+-	In een appeltaartvorm doe je bakpapier.
+-	Verdeel de plakkerige massa in de appeltaartvorm.
 
 Vulling
 
-	Doe de cashewnoten in de keukenmachine.
-	Was de aardbeien.
-	Voeg de aardbeien, het citroensap, de honing en het vanillepoeder toe en laat de keukenmachine draaien tot het één grote egale massa is.
-	Kokosmelk en kokosolie in de pan.
-	Zodra het kookt kan de agar agar erbij.
-	Laat het 3 minuten koken.
-	Schenk het kokosmelk mengsel bij de aardbeienvulling en meng het goed.
-	Vervolgens schenk je de vulling over de bodem.
-	Zet de taart voor een paar uur weg in de koelkast
+-	Doe de cashewnoten in de keukenmachine.
+-	Was de aardbeien.
+-	Voeg de aardbeien, het citroensap, de honing en het vanillepoeder toe en laat de keukenmachine draaien tot het één grote egale massa is.
+-	Kokosmelk en kokosolie in de pan.
+-	Zodra het kookt kan de agar agar erbij.
+-	Laat het 3 minuten koken.
+-	Schenk het kokosmelk mengsel bij de aardbeienvulling en meng het goed.
+-	Vervolgens schenk je de vulling over de bodem.
+-	Zet de taart voor een paar uur weg in de koelkast
 
 Topping 
 
-	Was de aardbeien en laat de kroontjes erop zitten.
-	Smelt de chocolade au bain-marie.
-	Verdeel de aardbeien over de taart.
-	Decoreer de taart met de gesmolten chocolade.
-	Vervolgens de taart weer in de koelkast om het goed hard te laten worden.
+-	Was de aardbeien en laat de kroontjes erop zitten.
+-	Smelt de chocolade au bain-marie.
+-	Verdeel de aardbeien over de taart.
+-	Decoreer de taart met de gesmolten chocolade.
+-	Vervolgens de taart weer in de koelkast om het goed hard te laten worden.
 
 
 
@@ -144,10 +144,10 @@ Doe op elk gebakje een snickertje met een vlaggetje.
 
 
 ## Glutenvrij meelmix ## 
-120 gram rijstmeel
-75 gram havermeel (havermout in de keukenmachine fijnmaken)
-80 gram boekweitmeel
-25 gram maismeel
+-	120 gram rijstmeel
+-	75 gram havermeel (havermout in de keukenmachine fijnmaken)
+-	80 gram boekweitmeel
+-	25 gram maismeel
 
 Goed mengen, dit meel is voor alle recepten goed toe te passen.
 
