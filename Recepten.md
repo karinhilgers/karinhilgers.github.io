@@ -17,6 +17,7 @@ weight : 5
 -	250 gram blauwe bessen
 
 Stap voor stap
+
 - Oven voorverwarmen op 170 graden.
 -	Eieren in de blender (paar minuten aanzetten).
 -	Gesmolten kokosolie erbij.
