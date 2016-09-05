@@ -32,6 +32,8 @@ Ongeveer 20-25 minuten in de oven.
 
 
 
+
+
 ## Aardbeien- chocolade cheesecake ##
 Bodem
 
@@ -55,8 +57,8 @@ Topping
 -	250 gram aardbeien
 -	50 gram pure (meer dan 70%) chocolade
 
+Stap voor stap
 Bodem
-
 -	Ontpit de dadels.
 -	Doe alle ingrediënten voor de bodem in de keukenmachine. Zodra het één grote plakkerige massa is, is het klaar.
 -	In een appeltaartvorm doe je bakpapier.
