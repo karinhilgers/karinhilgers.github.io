@@ -122,17 +122,17 @@ Snickertjes voor op de gebakjes
 
 -	10 medjool dadels
 -	1 el pindakaas
--	200 gr pure chocolade (meer dan 70%)
+-	200 gr pure chocolade, meer dan 70%
 -	100 gr gezoute pinda’s
 
 -	Dadels ontpitten
 -	Dadels en pindakaas in de keukenmachine tot het een grote bal wordt
 -	De bal op een bord platdrukken
--	15 min in de vriezer
+-	15 min In de vriezer
 -	20 Balletjes draaien 
--	weer in de vriezer
--	pinda’s klein hakken
--	chocolade smelten
+-	Weer in de vriezer
+-	Pinda’s klein hakken
+-	Chocolade smelten
 -	Met een sateprikker/ leuk vlaggetje de balletjes door de chocolade halen en over de gehakte pinda’s rollen.
 -	De snickertjes in de koelkast bewaren.
 
