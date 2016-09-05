@@ -109,6 +109,7 @@ Topping
 -	125 gram pure chocolade (minimaal 70 %)
 
 Stap voor stap
+
 -	De oven voorverwarmen op 180 graden
 -	Meng het meelmix, de cacao, wijnsteenbakpoeder, vanillepoeder en het zout.
 -	Meng de kokosmelk, kokossuiker, gesmolten kokosolie.
@@ -118,7 +119,9 @@ Stap voor stap
 -	Laat de taart eerst afkoelen en zet de taart in de koelkast.
 
 Stap voor stap
+
 Topping 
+
 -	Kook de kokosmelk.
 -	Doe de chocolade erbij en meng goed.
 -	Giet het chocolade mengsel over de taart.
@@ -132,9 +135,10 @@ Maak ondertussen de snickertjes voor op de gebakjes.
 -	10 medjool dadels
 -	1 el pindakaas
 -	200 gr pure chocolade, meer dan 70%
--	100 gr gezoute pinda
+-	100 gr gezouten pinda's
 
 Stap voor stap
+
 -	Dadels ontpitten
 -	Dadels en pindakaas in de keukenmachine tot het een grote bal wordt
 -	De bal op een bord platdrukken
