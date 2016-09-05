@@ -34,6 +34,9 @@ Ongeveer 20-25 minuten in de oven.
 
 
 
+
+
+
 ## Aardbeien- chocolade cheesecake ##
 Bodem
 
@@ -84,6 +87,9 @@ Topping
 -	Verdeel de aardbeien over de taart.
 -	Decoreer de taart met de gesmolten chocolade.
 -	Vervolgens de taart weer in de koelkast om het goed hard te laten worden.
+
+
+
 
 
 
@@ -143,6 +149,9 @@ Stap voor stap
 De taart uit de koelkast halen en vierkante gebakjes uit snijden.
 
 Doe op elk gebakje een snickertje met een vlaggetje.
+
+
+
 
 
 
