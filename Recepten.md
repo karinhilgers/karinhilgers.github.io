@@ -83,6 +83,7 @@ Topping
 
 
 
+
 ## Chocolade- snicker gebakjes ##
 -	125 gram glutenvrij meelmix
 -	60 gram cacao
@@ -92,9 +93,6 @@ Topping
 -	200 gram kokossuiker
 -	80 ml kokosolie
 -	1 ½ theelpel vanille extract
-
- Topping 
- 
 -	80 ml kokosmelk
 -	125 gram pure chocolade (minimaal 70 %)
 
