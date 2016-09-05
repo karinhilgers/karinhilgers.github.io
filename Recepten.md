@@ -156,7 +156,7 @@ Doe op elk gebakje een snickertje met een vlaggetje.
 
 
 
-## Glutenvrij meelmix ## 
+## Glutenvrij meelmix 
 -	120 gram rijstmeel
 -	75 gram havermeel (havermout in de keukenmachine fijnmaken)
 -	80 gram boekweitmeel
