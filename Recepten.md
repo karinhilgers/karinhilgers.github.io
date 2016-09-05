@@ -34,13 +34,11 @@ Ongeveer 20-25 minuten in de oven.
 
 ## Aardbeien- chocolade cheesecake ##
 Bodem
-
 -	200 gram dadels
 -	200 gram walnoten
 -	3 eetlepels cacao poeder
 
 Vulling
-
 -	500 gram aardbeien
 -	500 ml kokosmelk (go tan, aangemengd met water in een 2 liter kan).
 -	2 eetlepels agar agar
@@ -51,19 +49,16 @@ Vulling
 -	½ theelepel vanillepoeder
 
 Topping
-
 -	250 gram aardbeien
 -	50 gram pure (meer dan 70%) chocolade
 
 Bodem
-
 -	Ontpit de dadels.
 -	Doe alle ingrediënten voor de bodem in de keukenmachine. Zodra het één grote plakkerige massa is, is het klaar.
 -	In een appeltaartvorm doe je bakpapier.
 -	Verdeel de plakkerige massa in de appeltaartvorm.
 
 Vulling
-
 -	Doe de cashewnoten in de keukenmachine.
 -	Was de aardbeien.
 -	Voeg de aardbeien, het citroensap, de honing en het vanillepoeder toe en laat de keukenmachine draaien tot het één grote egale massa is.
@@ -75,7 +70,6 @@ Vulling
 -	Zet de taart voor een paar uur weg in de koelkast
 
 Topping 
-
 -	Was de aardbeien en laat de kroontjes erop zitten.
 -	Smelt de chocolade au bain-marie.
 -	Verdeel de aardbeien over de taart.
@@ -96,8 +90,7 @@ Topping
 -	1 ½ theelpel vanille extract
 
  Topping 
- 
--	80 ml kokosmelk
+ -	80 ml kokosmelk
 -	125 gram pure chocolade (minimaal 70 %)
 
 -	De oven voorverwarmen op 180 graden
@@ -109,7 +102,6 @@ Topping
 -	Laat de taart eerst afkoelen en zet de taart in de koelkast.
 
 Topping 
-
 -	Kook de kokosmelk.
 -	Doe de chocolade erbij en meng goed.
 -	Giet het chocolade mengsel over de taart.
@@ -119,7 +111,6 @@ Maak ondertussen de snickertjes voor op de gebakjes.
 
 
 Snickertjes voor op de gebakjes 
-
 -	10 medjool dadels
 -	1 el pindakaas
 -	200 gr pure chocolade, meer dan 70%
