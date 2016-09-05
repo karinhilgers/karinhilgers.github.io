@@ -122,8 +122,8 @@ Maak ondertussen de snickertjes voor op de gebakjes.
 
 -	10 medjool dadels
 -	1 el pindakaas
--	200 gr pure chocolade, meer dan 70 procent.
--	100 gr gezoute pinda’s
+-	200 gr pure chocolade, meer dan 70%
+-	100 gr gezoute pinda
 
 
 -	Dadels ontpitten
