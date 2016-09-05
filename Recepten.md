@@ -74,7 +74,8 @@ Vulling
 -	Vervolgens schenk je de vulling over de bodem.
 -	Zet de taart voor een paar uur weg in de koelkast
 
-Topping 
+Topping
+
 -	Was de aardbeien en laat de kroontjes erop zitten.
 -	Smelt de chocolade au bain-marie.
 -	Verdeel de aardbeien over de taart.
@@ -95,6 +96,7 @@ Topping
 -	1 ½ theelpel vanille extract
 
  Topping 
+ 
 -	80 ml kokosmelk
 -	125 gram pure chocolade (minimaal 70 %)
 
