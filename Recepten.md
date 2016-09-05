@@ -57,6 +57,7 @@ Topping
 -	250 gram aardbeien
 -	50 gram pure (meer dan 70%) chocolade
 
+
 Stap voor stap
 Bodem
 -	Ontpit de dadels.
@@ -64,8 +65,8 @@ Bodem
 -	In een appeltaartvorm doe je bakpapier.
 -	Verdeel de plakkerige massa in de appeltaartvorm.
 
+Stap voor stap
 Vulling
-
 -	Doe de cashewnoten in de keukenmachine.
 -	Was de aardbeien.
 -	Voeg de aardbeien, het citroensap, de honing en het vanillepoeder toe en laat de keukenmachine draaien tot het één grote egale massa is.
@@ -76,13 +77,14 @@ Vulling
 -	Vervolgens schenk je de vulling over de bodem.
 -	Zet de taart voor een paar uur weg in de koelkast
 
+Stap voor stap
 Topping
-
 -	Was de aardbeien en laat de kroontjes erop zitten.
 -	Smelt de chocolade au bain-marie.
 -	Verdeel de aardbeien over de taart.
 -	Decoreer de taart met de gesmolten chocolade.
 -	Vervolgens de taart weer in de koelkast om het goed hard te laten worden.
+
 
 
 
@@ -100,6 +102,7 @@ Topping
 -	80 ml kokosmelk
 -	125 gram pure chocolade (minimaal 70 %)
 
+Stap voor stap
 -	De oven voorverwarmen op 180 graden
 -	Meng het meelmix, de cacao, wijnsteenbakpoeder, vanillepoeder en het zout.
 -	Meng de kokosmelk, kokossuiker, gesmolten kokosolie.
@@ -108,8 +111,8 @@ Topping
 -	Bak de taart in 30 à 35 minuten gaar.
 -	Laat de taart eerst afkoelen en zet de taart in de koelkast.
 
+Stap voor stap
 Topping 
-
 -	Kook de kokosmelk.
 -	Doe de chocolade erbij en meng goed.
 -	Giet het chocolade mengsel over de taart.
@@ -125,7 +128,7 @@ Maak ondertussen de snickertjes voor op de gebakjes.
 -	200 gr pure chocolade, meer dan 70%
 -	100 gr gezoute pinda
 
-
+Stap voor stap
 -	Dadels ontpitten
 -	Dadels en pindakaas in de keukenmachine tot het een grote bal wordt
 -	De bal op een bord platdrukken
