@@ -125,6 +125,7 @@ Maak ondertussen de snickertjes voor op de gebakjes.
 -	200 gr pure chocolade, meer dan 70 procent.
 -	100 gr gezoute pinda’s
 
+
 -	Dadels ontpitten
 -	Dadels en pindakaas in de keukenmachine tot het een grote bal wordt
 -	De bal op een bord platdrukken
