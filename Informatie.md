@@ -16,7 +16,10 @@ Waarom is havermout gezond?
 - Kalmeert, de langzaam vrijgegeven koolhydraten in havermout helpen bij de aanmaak van serotonine. Dit is een feelgood-stofje in je hersenen die voornamelijk in je darm wordt aangemaakt. Je voelt je beter.
 - Haver is van nature glutenvrij. Alleen de meeste havermout wordt in een fabriek gemaakt waar ook andere granen, die wel gluten bevatten verwerkt worden. Zo kan het zijn dat havermout toch wat gluten bevat. Heb je coeliakie, kies dan voor havermout waarop aangegeven staat dat het gluten vrij is.
 - Havermout bevat fytinezuur, Dit is een stofje wat planten aanmaken om zich te beschermen tegen bacteriën en schimmels. In ons lichaam kan fytinezuur zich binden aan mineralen zoals calcium, magnesium en zink. Deze mineralen verlaten dan via de ontlasting het lichaam zonder te zijn opgenomen. Helaas helpt weken in water niet bij havermout. Boekweit bevat fytase die het fytinezuur wel kan omzetten. Doe dus altijd een beetje boekweitvlokken of boekweitmeel bij de havermout.
-- Pimp je havermout voor een gezond ontbijt. Havermout is op zich dus al voedzaam en gezond. Maar je kunt er van alles aan toe voegen om je ontbijt compleet te maken. Naast de havermout zelf, voeg je sowieso toe:
+
+
+Pimp je havermout voor een gezond ontbijt. Havermout is op zich dus al voedzaam en gezond. Maar je kunt er van alles aan toe voegen om je ontbijt compleet te maken. Naast de havermout zelf, voeg je sowieso toe:
+
 
 - water of kokosmelk (voorkeur 100% kokosmelk zonder toevoegingen, aangelengt met water)
 - goede vetten, noten of pitten of zaden (vb walnoten, pompoenpitten, chia zaad)
