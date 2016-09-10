@@ -5,7 +5,29 @@ description: "Vragen? Neem contact met mij op!"
 header-img: "img/aloe.jpg"
 weight : 5
 ---
-"ELKE DAG CITROENWATER DOET ONS LICHAAM GOED"
+## Havermout ##
+
+Waarom is havermout gezond?
+
+- Geven een verzadigd gevoel, eiwitrijk en dat is gunstig, want eiwitten geven een verzadigd gevoel en worden gebruikt voor allerlei opbouwprocessen in ons lichaam. De vezels zorgen ook voor een verzadigd gevoel. De beta glucan vezels in havermout zwellen als ze in contact met water komen op en geven daarom uren nadat je ze gegeten hebt nog een vol gevoel. De bloedsuikerspiegel stijgt hierdoor heel langzaam. Wil je afvallen is havermout eten een goed idee. 
+- Goed voor onze darmbacteriën, de vezels voeden onze darmbacteriën. Als die goed gevoed zijn, loopt je stoelgang soepel en profiteert je immuunsysteem er ook van.
+- Goed voor ons cholesterol, de vezels die het bevat, binden zich met galzouten die ook cholesterol bevatten. Ze verlaten op die manier gebonden het lichaam, wat goed is voor het behoud van het cholesterolgehalte. 
+- Rijk aan vitamine B1, magnesium en fosfor.
+- Kalmeert, de langzaam vrijgegeven koolhydraten in havermout helpen bij de aanmaak van serotonine. Dit is een feelgood-stofje in je hersenen die voornamelijk in je darm wordt aangemaakt. Je voelt je beter.
+- Haver is van nature glutenvrij. Alleen de meeste havermout wordt in een fabriek gemaakt waar ook andere granen, die wel gluten bevatten verwerkt worden. Zo kan het zijn dat havermout toch wat gluten bevat. Heb je coeliakie, kies dan voor havermout waarop aangegeven staat dat het gluten vrij is.
+- Havermout bevat fytinezuur, Dit is een stofje wat planten aanmaken om zich te beschermen tegen bacteriën en schimmels. In ons lichaam kan fytinezuur zich binden aan mineralen zoals calcium, magnesium en zink. Deze mineralen verlaten dan via de ontlasting het lichaam zonder te zijn opgenomen. Helaas helpt weken in water niet bij havermout. Boekweit bevat fytase die het fytinezuur wel kan omzetten. Doe dus altijd een beetje boekweitvlokken of boekweitmeel bij de havermout.
+- Pimp je havermout voor een gezond ontbijt. Havermout is op zich dus al voedzaam en gezond. Maar je kunt er van alles aan toe voegen om je ontbijt compleet te maken. Naast de havermout zelf, voeg je sowieso toe:
+
+- water of kokosmelk (voorkeur 100% kokosmelk zonder toevoegingen, aangelengt met water)
+- goede vetten, noten of pitten of zaden (vb walnoten, pompoenpitten, chia zaad)
+- antioxidant en smaakmaker, fruit (vb aardbeien, frambozen, banaan, appel)
+- smaakmaker, kruiden (vb kaneel)
+
+
+
+
+
+## Elke dag citroenwater doet ons lichaam goed ##
 
 
 Begin de dag met citroenwater....waarom?
