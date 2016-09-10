@@ -5,7 +5,7 @@ description: "Vragen? Neem contact met mij op!"
 header-img: "img/aloe.jpg"
 weight : 5
 ---
-##elke ochtend citroenwater doet ons lichaam goed##
+##Elke ochtend citroenwater doet ons lichaam goed##
 Begin de dag met citroenwater....waarom?
 - Het reinigt de lever en helpt je spijsvertering op gang te komen
 - Het is een boost voor je immuunsysteem. Doordat ze rijk zijn aan vitamine C en kalium stimuleren ze de hersenen en zenuwen en het helpt een hoge bloeddruk onder controle te houden
