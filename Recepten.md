@@ -6,6 +6,95 @@ header-img: "img/aloe.jpg"
 weight : 5
 ---
 
+## Kies bij voorkeur voor biologische ingrediënten bij de recepten##
+
+
+
+## Citroen water ##
+- 1 citroen (biologisch)
+- 1 of 2 liter water (bij voorkeur gefiltert water)
+- eventueel ijsklontjes zakjes
+
+Stap voor Stap
+
+- Pers de citroenen uit.
+- Meng het citroensap met het water in een 1 of 2 literkan.
+- Mocht 1 of 2 liter citroenwater teveel zijn, alleen de citroenen uitpersen en in ijsklontjeszakjes doen en vervolgens in de vriezer. Zo kan je makkelijk elke dag een glas citroenwater maken.
+
+
+
+## Havermout aardbeien ontbijtje ##
+- 100 gram havermout
+- 10 gram boekweitvlokken/meel
+- aardbei- banaansmoothy
+- chia zaad
+
+Stap voor stap
+
+- 1 liter water met de havermout en de boekweit aan de kook brengen.
+- Zodra het een goede dikte heeft is de pap klaar.
+- Maak vervolgens de Smoothy (zie recept).
+- Doe de pap in een kommetje en giet er wat aardbei- banaansmoothy over.
+- Vervolgens besprenkelen met chia zaad.
+- Eventueel wat honing toevoegen.
+
+
+
+
+## Aardbei- banaansmoothy ##
+- 250 gram aardbeien
+- 4 rijpe bananen (hoe rijper, hoe zoeter)
+
+Stap voor stap
+
+- Was de aardbeien en doe ze in de blender.
+- Pel de bananen en doe ze in stukken in de blender.
+- Blender aan en klaar is de aardbei- banaan smoothy.
+
+
+
+
+
+
+
+## Makkelijke lunch ##
+- 2 eieren (biologisch)
+- kruiden naar keuze
+- klein beetje Himalaya zout
+- sla
+- komkommer
+- tomaatjes
+- eventueel een spirelli
+
+Stap voor stap
+
+- Bak de 2 eitjes in de pan met kokosolie en Himalaya zout en eventueel wat kruiden.
+- Was de sla, de komkommer en de tomaatjes
+- Maak met een spirelli mooie lange slierten van de komkommer.
+- Alles op je bord of in je lunch bak (bij voorkeur RVS ivm gifstoffen als je kiest voor plastic)
+
+
+
+## Aardbeien pannenkoek ##
+- 250 gram aardbeien
+- 4 eieren
+- 100 gram bananenmeel
+- kokosrasp
+- eventueel wat honing
+
+Stap voor stap
+
+- Doe de eieren in de blender en laat de blender even draaien.
+- Was de aardbeien en doe ongeveer 2/3 in de blender, laat de blender even draaien.
+- Vervolgens het bananenmeel erbij en meng alles tot het een egaal beslag is.
+- In de koekenpan wat kokosolie.
+- Met een soeplepel het beslag in de pan (waarschijnlijk 2 scheppen nodig voor 1 grote pannenkoek).
+- Zodra de bovenkant droog is kan de pannenkoek omgedraaid worden (inmiddels ruikt het heerlijk naar aardbeien).
+- Zodra beide kanten klaar zijn, kan je de pannenkoek op je bord versieren met wat kokosrasp en gewassen aardbeien en eventueel wat honing.
+
+
+
+
 ## Citroen- blauwe bessen taart ##
 -	6 eieren
 -	150 gram honing
