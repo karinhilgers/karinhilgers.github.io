@@ -5,7 +5,7 @@ description: "Vragen? Neem contact met mij op!"
 header-img: "img/aloe.jpg"
 weight : 5
 ---
-##Elke ochtend citroenwater doet ons lichaam goed##
+###Elke dag citroenwater doet ons lichaam goed###
 
 
 Begin de dag met citroenwater....waarom?
