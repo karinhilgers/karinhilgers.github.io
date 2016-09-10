@@ -26,7 +26,7 @@ Stap voor Stap
 ## Havermout aardbeien ontbijtje ##
 - 100 gram havermout
 - 10 gram boekweitvlokken/meel
-- aardbei- banaansmoothy
+- aardbei- banaan smoothy
 - chia zaad
 
 Stap voor stap
@@ -41,7 +41,7 @@ Stap voor stap
 
 
 
-## Aardbei- banaansmoothy ##
+## Aardbei- banaan smoothy ##
 - 250 gram aardbeien
 - 4 rijpe bananen (hoe rijper, hoe zoeter)
 
