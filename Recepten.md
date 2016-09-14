@@ -17,7 +17,8 @@ Bodem
 - 100 gram kokosolie
 - mespunt zeezout (himalaya zout)
 
-Vulling
+Vulling:
+
 - 400 gram bloemkool, kort gestoomd
 - rasp en sap van 1 biologische citroen
 - 130 ml honing 
@@ -26,13 +27,15 @@ Vulling
 - 3 gram agar agar 
 
 topping:
+
 - 90 ml honing 
 - rasp en sap van 3 biologische citroenen
 - 6 gram agar agar 
 
 Stap voor stap
 
-Bodem
+Bodem:
+
 - Oven voorverwarmen op 170 graden.
 - Bekleed een springvorm met bakpapier.
 - Doe de walnoten in de keukenmachine en laat kort draaien
@@ -40,7 +43,8 @@ Bodem
 
 Stap voor stap
 
-Vulling
+Vulling:
+
 - Stoom de bloemkool kort.
 - De bloemkool samen met de citroenrasp en -sap (van 1 citroen), de honing en het vanillepoeder in de keukenmachine.
 - Smelt de kokoscreme au-bain-marie tot hij vloeibaar is.
@@ -55,7 +59,8 @@ Vulling
 
 Stap voor stap
 
-Topping
+Topping:
+
 - Rasp de citroenen.
 - Doe het citroensap in een pan en los 2 theelepels agar agar op in het vocht. Breng dit mengsel samen met de honing aan de kook en laat   het drie minuten koken.
 - Haal de pan van het vuur terwijl je blijft roeren. 
