@@ -55,10 +55,11 @@ Vulling
 Stap voor stap
 
 Topping
-- Snijd het rasp van de overige 3 citroenen tot fijne flinters.
+- Rasp de citroenen.
 - Doe het citroensap in een pan en los 2 theelepels agar agar op in het vocht. Breng dit mengsel samen met de honing aan de kook en laat   het drie minuten koken.
 - Haal de pan van het vuur terwijl je blijft roeren. 
 - Giet het mengsel over de koude vulling en verdeel het goed.
+- Verdeel vervolgens de citroenrasp over de taart.
 - Zodra er geen damp meer vanaf komt kun je de taart weer in de koelkast zetten om verder op te stijven.
 - Na ongeveer 2 uur is de taart klaar om aan te snijden!
 - Eventueel is de taart prima in de vriezer te bewaren.
