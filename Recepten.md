@@ -10,13 +10,11 @@ weight : 5
 
 
 ## Citroen taart ##
-
 Bodem
 - 150 gram walnoten
 - 50 gram kokosbloesemsuiker 
 - 100 gram kokosolie
 - mespunt zeezout (himalaya zout)
-
 
 Vulling
 - 400 gram bloemkool, kort gestoomd
@@ -26,14 +24,12 @@ Vulling
 - 120 gram kokoscreme (go tan kokoscreme)
 - 3 gram agar agar 
 
-
 topping:
 - 90 ml honing 
 - rasp en sap van 3 biologische citroenen
 - 6 gram agar agar 
 
 Stap voor stap
-
 
 Bodem
 - Oven voorverwarmen op 170 graden.
@@ -42,7 +38,6 @@ Bodem
 - Smelt de kokosolie au-bain-marie. Pak intussen een grote kom en meng daarin de vermalen walnoten, kokosbloesemsuiker en zout. Roer de    gesmolten olie erdoor en doe het mengsel in de springvorm. Druk goed aan en zet 10 minuten in de oven tot de bodem goudbruin is. Laat    daarna afkoelen.
 
 Stap voor stap
-
 
 Vulling
 - Stoom de bloemkool kort.
@@ -59,7 +54,6 @@ Vulling
 
 Stap voor stap
 
-
 Topping
 - Rasp de citroenen.
 - Doe het citroensap in een pan en los 2 theelepels agar agar op in het vocht. Breng dit mengsel samen met de honing aan de kook en laat   het drie minuten koken.
@@ -69,6 +63,8 @@ Topping
 - Zodra er geen damp meer vanaf komt kun je de taart weer in de koelkast zetten om verder op te stijven.
 - Na ongeveer 2 uur is de taart klaar om aan te snijden!
 - Eventueel is de taart prima in de vriezer te bewaren.
+
+
 
 
 ## Citroen water ##
