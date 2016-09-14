@@ -10,7 +10,7 @@ weight : 5
 
 
 ## Citroen taart ##
-Bodem
+Bodem:
 
 - 150 gram walnoten
 - 50 gram kokosbloesemsuiker 
