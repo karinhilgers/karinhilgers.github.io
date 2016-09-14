@@ -9,6 +9,60 @@ weight : 5
 ## Kies bij voorkeur voor biologische ingrediënten bij de recepten##
 
 
+## Citroen taart ##
+Bodem
+- 150 gram walnoten
+- 50 gram kokosbloesemsuiker 
+- 100 gram kokosolie
+- mespunt zeezout (himalaya zout)
+
+Vulling
+- 400 gram bloemkool, kort gestoomd
+- rasp en sap van 1 biologische citroen
+- 130 ml honing 
+- 1 theelepel vanille poeder of merg van een half vanillestokje
+- 120 gram kokoscreme (go tan kokoscreme)
+- 3 gram agar agar 
+
+topping:
+- 90 ml honing 
+- rasp en sap van 3 biologische citroenen
+- 6 gram agar agar 
+
+Stap voor stap
+
+Bodem
+- Oven voorverwarmen op 170 graden.
+- Bekleed een springvorm met bakpapier.
+- Doe de walnoten in de keukenmachine en laat kort draaien
+- Smelt de kokosolie au-bain-marie. Pak intussen een grote kom en meng daarin de vermalen walnoten, kokosbloesemsuiker en zout. Roer de    gesmolten olie erdoor en doe het mengsel in de springvorm. Druk goed aan en zet 10 minuten in de oven tot de bodem goudbruin is. Laat    daarna afkoelen.
+
+Stap voor stap
+
+Vulling
+- Stoom de bloemkool kort.
+- De bloemkool samen met de citroenrasp en -sap (van 1 citroen), de honing en het vanillepoeder in de keukenmachine.
+- Smelt de kokoscreme au-bain-marie tot hij vloeibaar is.
+- Voeg dit ook toe aan het mengsel in de keukenmachine en laat draaien. Schraap af en toe de inhoud van de randen naar beneden tot je een   egale massa hebt.
+- Doe 100 ml water in een kleine steelpan en los hier 3 gram agar agar in op.
+- Zet de pan op het vuur en breng het water aan de kook, laat het vervolgens 3 minuten koken. 
+- Schep intussen het bloemkoolmengsel in een ruime schaal.
+- Als de agar agar vloeistof drie minuten heeft gekookt is het nog vloeibaar, maar zal het opstijven wanneer het afkoelt.
+- Na drie minuten koken kun het onder voortdurend roeren door het bloemkoolmengsel mengen.
+- Schenk het mengsel daarna direct op de (afgekoelde) bodem en strijk de bovenkant glad. 
+- Laat afkoelen op het aanrecht en zet de taart daarna in de koelkast om op te stijven.
+
+Stap voor stap
+
+Topping
+- Snijd het rasp van de overige 3 citroenen tot fijne flinters.
+- Doe het citroensap in een pan en los 2 theelepels agar agar op in het vocht. Breng dit mengsel samen met de honing aan de kook en laat   het drie minuten koken.
+- Haal de pan van het vuur terwijl je blijft roeren. 
+- Giet het mengsel over de koude vulling en verdeel het goed.
+- Zodra er geen damp meer vanaf komt kun je de taart weer in de koelkast zetten om verder op te stijven.
+- Na ongeveer 2 uur is de taart klaar om aan te snijden!
+- Eventueel is de taart prima in de vriezer te bewaren.
+
 
 ## Citroen water ##
 - 1 citroen (biologisch)
