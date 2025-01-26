@@ -10,5 +10,5 @@ Gezamenlijk zullen wij dan een plan van aanpak maken wat zo dicht mogelijk bij u
 
 Iedereen is uniek, dus zal het voedingspatroon daar ook op aansluiten. Het voedingspatroon zal specifiek op u worden afgestemd.
 
-![Praktijkruimte](/img/ruimte.jpg)
+
 <span class="text-muted">Foto van de praktijkruimte</span>
