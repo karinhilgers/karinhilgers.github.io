@@ -1,7 +1,7 @@
 ---
 layout: page
 title: "Over mij"
-description: "Even wat achtergrondinformatie"
+description: 
 header-img: 
 weight : 3
 ---
